@@ -1,1 +1,0 @@
-punde summa iruda
